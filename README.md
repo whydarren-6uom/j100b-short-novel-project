@@ -1,4 +1,4 @@
-🌸 Short Novel Project – “Reincarnated and Found Happiness in a Medieval Village” Opening Scene 🌸
+🌸 Short Novel Project – “Reincarnated and Found Happiness in a Medieval Village” 🌸
 
 UC Berkeley J100B Course Project
 
